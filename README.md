@@ -1,1 +1,0 @@
-# kavosh.ac.ir
